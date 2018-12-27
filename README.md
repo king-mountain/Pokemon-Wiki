@@ -3,7 +3,7 @@
 
 |年代|阶段|名字|版本|链接|  
 |---|---|---|---|---|
-|1997-2002| 无印 ||TV|[Link](https://www.bilibili.com/video/av10744811)|
+|1997-2002| 无印 ||TV|[Link](https://www.bilibili.com/video/av20218473/)|
 || 无印 |秘密基地|OVA|[Link](https://www.bilibili.com/video/av9400997)|
 || 无印 |放送局|TV|[Link](https://www.bilibili.com/video/av19018489)|
 |1998| 无印 |超梦的逆袭|剧场|[Link](https://www.bilibili.com/video/av10658727/)|
