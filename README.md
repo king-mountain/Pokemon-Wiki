@@ -1,6 +1,7 @@
-# Pokemon-Watch-Wiki
-欢迎更新修改 =)
+# Pokemon-Wiki
+[TOC]
 
+##观看链接
 |年代|阶段|名字|版本|链接|  
 |---|---|---|---|---|
 |1997-2002| 无印 ||TV|[Link](https://www.bilibili.com/video/av20218473/)|
