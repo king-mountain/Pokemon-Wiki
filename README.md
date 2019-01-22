@@ -15,7 +15,7 @@
 |2002年7月13日| 无印 |水都的守护神 拉帝亚斯与拉帝欧斯|剧场|[Link](https://www.bilibili.com/video/av10663461/)|
 |2002-2006|超世代||TV|[Link](https://www.bilibili.com/video/av10770612)|
 |2003年7月19日| 超世代 | 七夜的许愿星 基拉祈  |剧场|[Link](https://www.bilibili.com/video/av10665777/)|
-|2004年7月17日| 超世代 裂空的访问者 代欧奇希斯 |剧场|[Link](https://www.bilibili.com/video/av10666043/)|
+|2004年7月17日| 超世代 | 裂空的访问者 代欧奇希斯 |剧场|[Link](https://www.bilibili.com/video/av10666043/)|
 |2005年7月16日| 超世代 | 梦幻与波导的勇者 路卡利欧|剧场|[Link](https://www.bilibili.com/video/av10666302/)|
 |2006| 超世代 |神奇宝贝保育家与苍海的王子 玛纳霏|剧场|[Link](https://www.bilibili.com/video/av10666918/)|
 |2006-2010| 钻石珍珠 ||TV|[Link](https://www.bilibili.com/video/av10783111)|
