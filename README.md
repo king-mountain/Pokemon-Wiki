@@ -7,10 +7,11 @@
 || 无印 |秘密基地|OVA|[Link](https://www.bilibili.com/video/av9400997)|
 || 无印 |放送局|TV|[Link](https://www.bilibili.com/video/av19018489)|
 |1998| 无印 |超梦的逆袭|剧场|[Link](https://www.bilibili.com/video/av10658727/)|
-|2012| 无印 |超梦重现 风云再起|OVA|[Link](https://www.bilibili.com/video/av11698736/)|
+|2002| 无印 |超梦重现 风云再起|OVA|[Link](https://www.bilibili.com/video/av11698736/)|
 |1999| 无印 |洛奇亚爆诞|剧场|[Link](https://www.bilibili.com/video/av10662593/)|
 |2000| 无印 |结晶塔的帝王 |剧场|[Link](https://www.bilibili.com/video/av10662604/)|
 |2001| 无印 |雪拉比穿越时空的遭遇|剧场|[Link](https://www.bilibili.com/video/av10662606/)|
+|2001|无印|水晶特别篇: 雷公，雷的传说|OVA|[Link](https://www.bilibili.com/video/av20059635)|
 |2002| 无印 |水都的守护神|剧场|[Link](https://www.bilibili.com/video/av10663461/)|
 |2002-2006|超世代||TV|[Link](https://www.bilibili.com/video/av10770612)|
 |2003| 超世代 | 七夜的许愿星 |剧场|[Link](https://www.bilibili.com/video/av10665777/)|
