@@ -8,7 +8,7 @@
 || 无印 |放送局|TV|[Link](https://www.bilibili.com/video/av19018489)|💋
 |1998年 7月 18日| 无印 |超梦的逆袭|剧场|[Link](https://www.bilibili.com/video/av10658727/)|💋
 |1999年 7月 17日| 无印 |梦幻之神奇宝贝 洛奇亚爆诞 |剧场|[Link](https://www.bilibili.com/video/av10662593/)|💋
-|2000年 7月 8日| 无印 |结晶塔的帝王 |剧场|[Link](https://www.bilibili.com/video/av10662604/)|
+|2000年 7月 8日| 无印 |结晶塔的帝王 |剧场|[Link](https://www.bilibili.com/video/av10662604/)|💋
 |2001年 7月 7日| 无印 |雪拉比 穿梭时空的相遇|剧场|[Link](https://www.bilibili.com/video/av10662606/)|
 |2001|无印|水晶特别篇: 雷公，雷的传说|OVA|[Link](https://www.bilibili.com/video/av20059635)|
 |2002| 无印 |超梦重现 风云再起|OVA|[Link](https://www.bilibili.com/video/av11698736/)|
@@ -37,7 +37,7 @@
 |2016.09-2016.12||世代|TV|[Link](https://www.bilibili.com/video/av8253062)|
 |2016年 7月 16日|太阳&月亮|波尔凯尼恩与机巧的玛机雅娜|剧场|[Link](https://www.bilibili.com/video/av23195520)|
 |2016-更新中||太阳与月亮|TV|[Link](https://www.bilibili.com/video/av33475774)|
-|2017年 7月 15日|太阳与月亮|就决定是你了|剧场|[Link](https://www.bilibili.com/video/av17878730?from=search&seid=7121815767237028949)|
+|2017年 7月 15日|太阳与月亮|就决定是你了|剧场|[Link](https://www.bilibili.com/video/av17878730?from=search&seid=7121815767237028949)|💋
 |2018|太阳与月亮|大家的物语|剧场|[Link](https://www.bilibili.com/video/av37453970/)|
 |未整理|未整理|不可思议的迷宫：进取队出门|OVA|[Link](https://www.bilibili.com/video/av10751167/)|
 |未整理|未整理|不可思议的迷宫：时之探险队|OVA|[Link](https://www.bilibili.com/video/av10763071/)|
