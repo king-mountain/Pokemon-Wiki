@@ -1,4 +1,6 @@
 # Pokemon-Wiki
+[超齐全图鉴](https://www.notion.so/synnefree/Pok-dex-7daf9252ed604aa2bc0d37823e14581c)	
+
 
 ## 观看链接  
 
